@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Doctor Worm
+- 👀 I’m interested in things
+- 🌱 I’m not a real doctor
+- 💞️ But I am a real worm
+- 📫 I am an actual worm
